@@ -7,6 +7,8 @@ Already the best tools for discord in the world, actually # NIKOF TOOLS has te v
 
 Its simple, join that discord and request for get it :D 
 
+Server : https://discord.gg/6A85uYcaxa
+
 
 
 ![image](https://github.com/user-attachments/assets/47384772-d318-4060-b084-da2940d1cc6c)
